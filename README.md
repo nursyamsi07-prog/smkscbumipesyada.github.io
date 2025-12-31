@@ -1,1 +1,1 @@
-# smkscbumipesyada.github.io
+# smkscbumipersyada.github.io
